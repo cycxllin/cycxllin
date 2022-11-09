@@ -1,4 +1,4 @@
-I'm chaging careers from Medical Lab Tech to software developer and I'm very excited delve into this new field!
+I'm changing careers from Medical Lab Tech to software developer and I'm very excited delve into this new field!
 
 Oh, and I love dogs. That's Barley in my profile pic. He's a Bernedoodle.
 
