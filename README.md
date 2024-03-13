@@ -1,4 +1,4 @@
-I'm changing careers from Medical Lab Tech to software developer and I'm very excited delve into this new field!
+New software dev who loves everything data related!
 
 <!---
 TheCoffeeManatee/TheCoffeeManatee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
