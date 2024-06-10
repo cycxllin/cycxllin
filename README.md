@@ -1,4 +1,4 @@
-New software dev who loves everything data related!
+BSc Computer Science | Seeking entry level Software Engineer opportunities
 
 <!---
 TheCoffeeManatee/TheCoffeeManatee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
